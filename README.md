@@ -22,3 +22,4 @@
 [![](https://visitcount.itsvg.in/api?id=Avirenuse&icon=0&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+![github profile display](https://github.com/user-attachments/assets/c5ffb1e2-a532-4ac3-a0c9-e3cab5ad8696)
